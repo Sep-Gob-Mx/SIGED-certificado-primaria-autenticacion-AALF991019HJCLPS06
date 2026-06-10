@@ -1,2 +1,0 @@
-# SIGED-certificado-primaria-autenticacion-AALF991019HJCLPS06
-AALF991019HJCLPS06
